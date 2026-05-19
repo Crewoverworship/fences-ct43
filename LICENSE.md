@@ -1,4 +1,4 @@
-# 
+# rare Advanced SystemCare para PC scripts é o melhor Advanced SystemCare para PC scripts com exclusao de arquivos e gestos do mouse. Seguro, confiável e otimizado para máximo
 
 
 
